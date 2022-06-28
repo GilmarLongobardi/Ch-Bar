@@ -46,7 +46,7 @@
             </td>
             <td>
             <!-- Aparelho de jantar e chá Floreal Renda - 30 peças -->
-                <img src="https://imgs.casasbahia.com.br/70646/1xg.jpg" width="350px" height="420px" />
+                <img src="https://images-americanas.b2w.io/produtos/29203207/imagens/aparelho-de-jantar-e-cha-30-pecas-floreal-renda/29203206_1_xlarge.jpg" />
             </td>
             <td>
             <!-- Aparelho de jantar Saturno 16 peças com Tigelinha Duralex Opaline - Nadir Figueiredo -->
