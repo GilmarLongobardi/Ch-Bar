@@ -100,7 +100,7 @@
         </td>
         <td>
         <!-- Panela de pressao -->
-            <img src="https://images-americanas.b2w.io/produtos/01/00/img7/01/00/item/122606/0/122606086SZ.jpg" width="350px" height="420px" />
+            <img src="https://user-images.githubusercontent.com/108352852/176231430-306cedc5-40f1-40d6-93d5-297f7f5a8e05.png" width="350px" height="420px" />
         </td>
         <td>
         <!-- Conjunto de assadeiras -->
