@@ -42,7 +42,7 @@
         <tbody>
             <td>
             <!-- Aparelho de jantar jardim oriental – 30 peças Oxford vermelho e branco -->
-                <img src="https://imgs.casasbahia.com.br/9029963/1xg.jpg" width="350px" height="420px" />
+                <img src="https://a-static.mlcdn.com.br/800x560/aparelho-de-jantar-jardim-oriental-30-pecas-oxford/extralar/ap-orie3001/cfae7f6c59034ee8c1af7411423d0af3.jpg" width="350px" height="420px" />
             </td>
             <td>
             <!-- Aparelho de jantar e chá Floreal Renda - 30 peças -->
