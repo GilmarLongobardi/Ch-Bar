@@ -17,66 +17,66 @@ Purificador de Água Refrigerado por Compressor Colormaq Premium CPUHF (modelo q
 
 
 <!-- Aparelho de jantar jardim oriental – 30 peças Oxford vermelho e branco -->
-<img src="https://a-static.mlcdn.com.br/800x560/aparelho-de-jantar-jardim-oriental-30-pecas-oxford/extralar/ap-orie3001/cfae7f6c59034ee8c1af7411423d0af3.jpg" width="350px" height="420px" />
 Aparelho de jantar jardim oriental – 30 peças Oxford vermelho e branco <a href="https://www.google.com/search?q=Aparelho+De+Jantar+Jardim+Oriental+30+Pe%C3%A7as+-+Oxford&oq=Aparelho+De+Jantar+Jardim+Oriental+30+Pe%C3%A7as+-+Oxford&aqs=chrome..69i57j69i60l2.767j0j7&sourceid=chrome&ie=UTF-8"> LINK </a> <br>
+<img src="https://a-static.mlcdn.com.br/800x560/aparelho-de-jantar-jardim-oriental-30-pecas-oxford/extralar/ap-orie3001/cfae7f6c59034ee8c1af7411423d0af3.jpg" width="350px" height="420px" />
            
 
 <!-- Aparelho de jantar e chá Floreal Renda - 30 peças -->
-<img src="https://images-americanas.b2w.io/produtos/29203207/imagens/aparelho-de-jantar-e-cha-30-pecas-floreal-renda/29203206_1_xlarge.jpg" />
 Aparelho de jantar e chá Floreal Renda - 30 peças <a href="https://www.google.com/search?q=Aparelho+de+Jantar+E+Ch%C3%A1+30+Pe%C3%A7as+Floreal+Renda&oq=Aparelho+de+Jantar+E+Ch%C3%A1+30+Pe%C3%A7as+Floreal+Renda&aqs=chrome..69i57j69i60l2.543j0j7&sourceid=chrome&ie=UTF-8"> LINK </a> <br>
+<img src="https://images-americanas.b2w.io/produtos/29203207/imagens/aparelho-de-jantar-e-cha-30-pecas-floreal-renda/29203206_1_xlarge.jpg" />
 
 
 <!-- Aparelho de jantar Saturno 16 peças com Tigelinha Duralex Opaline - Nadir Figueiredo -->
-<img src="https://images-americanas.b2w.io/produtos/01/00/img/1839206/7/1839206784_1SZ.jpg" width="350px" height="420px" />
 Aparelho de jantar Saturno 16 peças com Tigelinha Duralex Opaline - Nadir Figueiredo <a href="https://www.google.com/search?q=Aparelho+de+Jantar+Saturno+16+Pe%C3%A7as+com+Tigelinha+Duralex+Opaline+-+Nadir+Figueiredo&oq=Aparelho+de+Jantar+Saturno+16+Pe%C3%A7as+com+Tigelinha+Duralex+Opaline+-+Nadir+Figueiredo&aqs=chrome..69i57j69i60l2.951j0j7&sourceid=chrome&ie=UTF-8"> LINK </a> <br>
+<img src="https://images-americanas.b2w.io/produtos/01/00/img/1839206/7/1839206784_1SZ.jpg" width="350px" height="420px" />
       
 
 <!-- Potes Hermeticos -->
-<img src="https://m.media-amazon.com/images/I/51bOq7rNvhL._AC_SL1000_.jpg" width="350px" height="420px" />
 Conjunto de potes herméticos Electrolux 10 peças <a href="https://www.google.com/search?q=%E2%80%A2%09Conjunto+de+potes+herm%C3%A9ticos+Electrolux+10+pe%C3%A7as&ei=i3i0YvG_DIWE5OUP-rSeiAo&ved=0ahUKEwixseii5MP4AhUFArkGHXqaB6EQ4dUDCA4&uact=5&oq=%E2%80%A2%09Conjunto+de+potes+herm%C3%A9ticos+Electrolux+10+pe%C3%A7as&gs_lcp=Cgdnd3Mtd2l6EANKBAhBGABKBAhGGABQ9wZY9wZgnxRoAnABeACAAXeIAXeSAQMwLjGYAQCgAQGgAQKwAQDAAQE&sclient=gws-wiz"> LINK </a> <br>
+<img src="https://m.media-amazon.com/images/I/51bOq7rNvhL._AC_SL1000_.jpg" width="350px" height="420px" />
 
 
 <!-- Jogo de Panelas Tramontina -->
-<img src="https://m.media-amazon.com/images/I/61Z5gMTMLmL._AC_SL1000_.jpg" width="350px" height="420px" />
 Jogo de panelas antiaderente Tramontina (cor preto, prata ou vermelho) <a href="https://www.google.com/search?q=jogo+de+panelas+antiaderente+tramontina&ei=Zqi5YpODBJHX5OUPz8K3wAE&oq=jogo+de+panelas+antiaderente&gs_lcp=Cgdnd3Mtd2l6EAEYADIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQsAMQQzIHCAAQsAMQQ0oECEEYAEoECEYYAFAAWABg4wdoAXABeACAAQCIAQCSAQCYAQDIAQrAAQE&sclient=gws-wiz"> LINK </a> <br>
+<img src="https://m.media-amazon.com/images/I/61Z5gMTMLmL._AC_SL1000_.jpg" width="350px" height="420px" />
 
 
 <!-- Jogo Lençol King 4 peças -->
-<img src="https://m.media-amazon.com/images/I/71XOjLq654S._AC_SL1280_.jpg" width="350px" height="420px" />
 Jogo de cama KING 4 peças (modelo e cor a gosto a gosto do convidado) <a href="https://www.google.com/search?q=jogo+de+len%C3%A7ol+king+4+pe%C3%A7as&ei=Zqm5Yof1AdSA5OUP06uLkAE&oq=jogo+de+cama+king+3+pe%C3%A7as&gs_lcp=Cgdnd3Mtd2l6EAEYADIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwA0oECEEYAEoECEYYAFAAWABg0RpoAXABeACAAQCIAQCSAQCYAQDIAQjAAQE&sclient=gws-wiz"> LINK </a> <br>
+<img src="https://m.media-amazon.com/images/I/71XOjLq654S._AC_SL1280_.jpg" width="350px" height="420px" />
           
             
 <!-- Jogo Lençol king 3 Peças -->
-<img src="https://m.media-amazon.com/images/I/51rn3InJbPL._AC_SL1200_.jpg" width="350px" height="420px" />
 Jogo de cama KING 3 peças (modelo e cor a gosto do convidado) <a href="https://www.google.com/search?q=jogo+de+len%C3%A7ol+king+3+pe%C3%A7as&ei=mKm5YrWzBaeI5OUP35eRsAo&ved=0ahUKEwi137Pg1834AhUnBLkGHd9LBKYQ4dUDCA4&uact=5&oq=jogo+de+len%C3%A7ol+king+3+pe%C3%A7as&gs_lcp=Cgdnd3Mtd2l6EAMyBQgAEIAEMgYIABAeEAgyBggAEB4QCDIGCAAQHhAIOgcIABBHELADOgcIABCwAxBDOgoIABDkAhCwAxgBOhIILhDHARCjAhDIAxCwAxBDGAI6FQguEMcBENEDENQCEMgDELADEEMYAjoECAAQDToICAAQHhAIEAdKBAhBGABKBAhGGAFQwANYkwhgqg1oAXABeACAAYABiAH3AZIBAzAuMpgBAKABAcgBEcABAdoBBggBEAEYCdoBBggCEAEYCA&sclient=gws-wiz"> LINK </a> <br>
+<img src="https://m.media-amazon.com/images/I/51rn3InJbPL._AC_SL1200_.jpg" width="350px" height="420px" />
       
 
 <!-- Panela de pressao -->
-<img src="https://user-images.githubusercontent.com/108352852/176231430-306cedc5-40f1-40d6-93d5-297f7f5a8e05.png" width="350px" height="420px" />
 Panela de Pressão Tramontina Vancouver 4,5 Litros Alumínio antiaderente starflon max – Vermelha <a href="https://www.google.com/search?q=%E2%80%A2%09Panela+de+Press%C3%A3o+Tramontina+Vancouver+4%2C5+Litros+Alum%C3%ADnio+antiaderente+starflon+max+%E2%80%93+Vermelha&ei=rXi0YqWQLaSL5OUP_5Kj6A8&ved=0ahUKEwjlmqSz5MP4AhWkBbkGHX_JCP0Q4dUDCA4&uact=5&oq=%E2%80%A2%09Panela+de+Press%C3%A3o+Tramontina+Vancouver+4%2C5+Litros+Alum%C3%ADnio+antiaderente+starflon+max+%E2%80%93+Vermelha&gs_lcp=Cgdnd3Mtd2l6EAM6FAgAEOoCELQCEIoDELcDENQDEOUCSgQIQRgASgQIRhgAUK4IWK4IYM8NaAJwAXgAgAF4iAF4kgEDMC4xmAEAoAEBoAECsAEKwAEB&sclient=gws-wiz"> LINK </a> <br>
+<img src="https://user-images.githubusercontent.com/108352852/176231430-306cedc5-40f1-40d6-93d5-297f7f5a8e05.png" width="350px" height="420px" />
 
 
 <!-- Conjunto de assadeiras -->
-<img src="https://images-americanas.b2w.io/produtos/01/00/img/134371/8/134371894_1SZ.jpg" width="350px" height="420px" />
 Conjunto de assadeiras de vidro com tampa Marinex – 6 peças – vermelha <a href="https://www.google.com/search?q=%E2%80%A2%09Conjunto+de+assadeiras+de+vidro+com+tampa+Marinex+%E2%80%93+6+pe%C3%A7as+-+vermelha&ei=y3i0YrjAFpKs5OUPrdqZiAU&ved=0ahUKEwj40bTB5MP4AhUSFrkGHS1tBlEQ4dUDCA4&uact=5&oq=%E2%80%A2%09Conjunto+de+assadeiras+de+vidro+com+tampa+Marinex+%E2%80%93+6+pe%C3%A7as+-+vermelha&gs_lcp=Cgdnd3Mtd2l6EAM6FAgAEOoCELQCEIoDELcDENQDEOUCSgQIQRgASgQIRhgAUP8GWP8GYKgLaAFwAXgAgAF3iAF3kgEDMC4xmAEAoAEBoAECsAEKwAEB&sclient=gws-wiz"> LINK </a> <br>
+<img src="https://images-americanas.b2w.io/produtos/01/00/img/134371/8/134371894_1SZ.jpg" width="350px" height="420px" />
       
 
 <!-- Faqueiro 85 peças -->
-<img src="https://images-americanas.b2w.io/produtos/184972559/imagens/faqueiro-inox-malibu-85-pecas-tramontina/184972559_1_xlarge.jpg" width="350px" height="420px" />
 Faqueiro inox Malibu 85 peças – Tramontina <a href="https://www.google.com.br/search?q=Faqueiro+Inox+Malibu+85+Pe%C3%A7as+-+Tramontina&source=hp&ei=QpG0YtH5GuTf1sQP-riLuA8&iflsig=AJiK0e8AAAAAYrSfUoTQ2gXp2zmsW6uYGAW4slO2kh-f&ved=0ahUKEwjRovDr-8P4AhXkr5UCHXrcAvcQ4dUDCAc&uact=5&oq=Faqueiro+Inox+Malibu+85+Pe%C3%A7as+-+Tramontina&gs_lcp=Cgdnd3Mtd2l6EAMyBQgAEIAEMgYIABAeEBZQAFgAYMwmaAFwAHgAgAFwiAFwkgEDMC4xmAEAoAECoAEB&sclient=gws-wiz"> LINK </a> <br>
+<img src="https://images-americanas.b2w.io/produtos/184972559/imagens/faqueiro-inox-malibu-85-pecas-tramontina/184972559_1_xlarge.jpg" width="350px" height="420px" />
         
 
 <!-- Ferro de passar -->
-<img src="https://m.media-amazon.com/images/I/71qLokyzDpL._AC_SL1500_.jpg" width="350px" height="420px" />
 Ferro de passar a vapor Black Decker <a href="https://www.google.com/search?q=Ferro+de+passar+a+Vapor+FX2100+Black+Decker+1200w&oq=Ferro+de+passar+a+Vapor+FX2100+Black+Decker+1200w&aqs=chrome..69i57.655j0j1&sourceid=chrome&ie=UTF-8"> LINK </a> <br>
+<img src="https://m.media-amazon.com/images/I/71qLokyzDpL._AC_SL1500_.jpg" width="350px" height="420px" />
        
 
 <!-- Tapete -->
-<img src="https://m.media-amazon.com/images/I/71mYs37EHML._AC_SL1280_.jpg" width="350px" height="420px" />
 Tapete de pelo alto para quarto (cor cinza ou preto) <a href="https://www.google.com/search?q=tapete+de+pelo+alto+para+quarto&ei=UPu1YsdiyY3k5Q_JxLgI&ved=0ahUKEwjHyuaP1cb4AhXJBrkGHUkiDgEQ4dUDCA4&uact=5&oq=tapete+de+pelo+alto+para+quarto&gs_lcp=Cgdnd3Mtd2l6EAMyBggAEB4QFjoECAAQQzoKCC4QxwEQowIQQzoLCAAQgAQQsQMQgwE6EQguEIAEELEDEIMBEMcBENEDOhEILhCABBCxAxCDARDHARCjAjoHCAAQsQMQQzoHCC4Q1AIQQzoICAAQgAQQsQM6BQgAEIAEOggIABCxAxCDAToFCC4QgAQ6BwgAEIAEEAo6CAgAEB4QDxAWSgQIQRgASgQIRhgAUABYxkxgwk5oAXABeACAAYcBiAHaHJIBBDMuMjmYAQCgAQHAAQE&sclient=gws-wiz"> LINK </a> <br>
+<img src="https://m.media-amazon.com/images/I/71mYs37EHML._AC_SL1280_.jpg" width="350px" height="420px" />
       
 
 <!-- Tapete Dallas -->
-<img src="https://images-americanas.b2w.io/produtos/3824357969/imagens/tapete-jacquard-dallas-1-35-m-x-1-00m-antiderrapante-preto/3824357969_2_xlarge.jpg" width="350px" height="420px" />
 Tapete Dallas para sala ou quarto Antiderrapante Jacquard 1,35m x 1,00m Preto <a href="https://www.google.com/search?q=Tapete+Dallas+Para+Sala+Ou+Quarto+Antiderrapante+Jacquard+1%2C35m+x+1%2C00m+Preto&oq=Tapete+Dallas+Para+Sala+Ou+Quarto+Antiderrapante+Jacquard+1%2C35m+x+1%2C00m+Preto&aqs=chrome..69i57j69i60j69i61.1723j0j7&sourceid=chrome&ie=UTF-8"> LINK </a> <br>
+<img src="https://images-americanas.b2w.io/produtos/3824357969/imagens/tapete-jacquard-dallas-1-35-m-x-1-00m-antiderrapante-preto/3824357969_2_xlarge.jpg" width="350px" height="420px" />
        
