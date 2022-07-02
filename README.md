@@ -23,7 +23,7 @@ Aparelho de jantar jardim oriental – 30 peças Oxford vermelho e branco <a hre
 
 <!-- Aparelho de jantar e chá Floreal Renda - 30 peças -->
 Aparelho de jantar e chá Floreal Renda - 30 peças <a href="https://www.google.com/search?q=Aparelho+de+Jantar+E+Ch%C3%A1+30+Pe%C3%A7as+Floreal+Renda&oq=Aparelho+de+Jantar+E+Ch%C3%A1+30+Pe%C3%A7as+Floreal+Renda&aqs=chrome..69i57j69i60l2.543j0j7&sourceid=chrome&ie=UTF-8"> LINK </a> <br>
-<img src="https://images-americanas.b2w.io/produtos/29203207/imagens/aparelho-de-jantar-e-cha-30-pecas-floreal-renda/29203206_1_xlarge.jpg" />
+<img src="https://images-americanas.b2w.io/produtos/29203207/imagens/aparelho-de-jantar-e-cha-30-pecas-floreal-renda/29203206_1_xlarge.jpg" width="350px" height="420px" />
 
 
 <!-- Aparelho de jantar Saturno 16 peças com Tigelinha Duralex Opaline - Nadir Figueiredo -->
