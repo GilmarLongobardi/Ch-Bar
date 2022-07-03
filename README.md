@@ -24,7 +24,8 @@ Cafeteira Nescafe Dolce Gusto Mini Me Preta Automática (110v) - Nescafé Dolce 
 <!-- Purificador -->
 <h3> 
 Purificador de Água Consul Refrigerado (Agua gelada e natural)
-</h3>  <a href="https://www.google.com/search?q=purificador+de+%C3%A1gua+consul+refrigerado&ei=N4nBYtOqJrH01sQPzbOMkAE&ved=0ahUKEwiTopSA2tz4AhUxupUCHc0ZAxIQ4dUDCA4&uact=5&oq=purificador+de+%C3%A1gua+consul+refrigerado&gs_lcp=Cgdnd3Mtd2l6EAMyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEOgQIABBHOgQIABBDSgQIQRgASgQIRhgAUMcOWK8gYI4maABwAngAgAFyiAH9CJIBBDEwLjKYAQCgAQHIAQjAAQE&sclient=gws-wiz"> LINK </a> <br>
+ <a href="https://www.google.com/search?q=purificador+de+%C3%A1gua+consul+refrigerado&ei=N4nBYtOqJrH01sQPzbOMkAE&ved=0ahUKEwiTopSA2tz4AhUxupUCHc0ZAxIQ4dUDCA4&uact=5&oq=purificador+de+%C3%A1gua+consul+refrigerado&gs_lcp=Cgdnd3Mtd2l6EAMyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEOgQIABBHOgQIABBDSgQIQRgASgQIRhgAUMcOWK8gYI4maABwAngAgAFyiAH9CJIBBDEwLjKYAQCgAQHIAQjAAQE&sclient=gws-wiz"> LINK </a> <br>
+</h3>  
 <img src="https://user-images.githubusercontent.com/25295542/177039538-d7ddd8c0-a776-432f-9972-59c53a49e512.png" width="193px" />
 
 
