@@ -66,7 +66,7 @@ Jogo de panelas antiaderente Tramontina (cor preto, prata ou vermelho) <a href="
 
 <!-- Jogo Lençol King 4 peças -->
 <h3>
-Jogo de cama KING 4 peças (modelo e cor a gosto a gosto do convidado) <a href="https://www.google.com/search?q=jogo+de+len%C3%A7ol+king+4+pe%C3%A7as&ei=Zqm5Yof1AdSA5OUP06uLkAE&oq=jogo+de+cama+king+3+pe%C3%A7as&gs_lcp=Cgdnd3Mtd2l6EAEYADIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwA0oECEEYAEoECEYYAFAAWABg0RpoAXABeACAAQCIAQCSAQCYAQDIAQjAAQE&sclient=gws-wiz"> LINK </a> <br>
+Jogo de cama KING 4 peças (modelo e cor a gosto do convidado) <a href="https://www.google.com/search?q=jogo+de+len%C3%A7ol+king+4+pe%C3%A7as&ei=Zqm5Yof1AdSA5OUP06uLkAE&oq=jogo+de+cama+king+3+pe%C3%A7as&gs_lcp=Cgdnd3Mtd2l6EAEYADIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwA0oECEEYAEoECEYYAFAAWABg0RpoAXABeACAAQCIAQCSAQCYAQDIAQjAAQE&sclient=gws-wiz"> LINK </a> <br>
 </h3> 
 <img src="https://m.media-amazon.com/images/I/71XOjLq654S._AC_SL1280_.jpg" width="193px" />
           
@@ -148,16 +148,16 @@ Conjunto de assadeiras de vidro com tampa Marinex – 6 peças – vermelha <a h
 <img src="https://user-images.githubusercontent.com/108352852/177017295-8748bfa3-67e0-4e30-94d7-59da73af327a.png" width="193px" />
 
 
-<!-- Conjunto de taças para agua nadir lirio 6 peças -->
+<!-- Conjunto de taças para água Nadir lírio 6 peças -->
 <h3>
-    Conjunto de taças para agua nadir lirio 6 peças <a href="https://www.google.com/search?q=Conjunto+de+ta%C3%A7as+para+agua+nadir+lirio+6+pe%C3%A7as&ei=2r_AYp_MOeyQ4dUPprypmAI&ved=0ahUKEwifoer7mdv4AhVsSLgEHSZeCiMQ4dUDCA4&uact=5&oq=Conjunto+de+ta%C3%A7as+para+agua+nadir+lirio+6+pe%C3%A7as&gs_lcp=Cgdnd3Mtd2l6EAMyBggAEB4QFjoHCAAQRxCwAzoECAAQQzoKCAAQsQMQgwEQQzoLCAAQgAQQsQMQgwE6CAgAELEDEIMBOgUIABCABDoFCC4QgAQ6BAguEEM6CAgAEIAEELEDOgUIABCxAzoUCAAQ6gIQtAIQigMQtwMQ1AMQ5QI6CwguEIAEELEDEIMBOggILhCxAxCDAToRCC4QgAQQsQMQgwEQxwEQowI6DgguEIAEELEDEMcBENEDOg4ILhCABBCxAxDHARCjAjoHCAAQsQMQQzoICAAQHhAWEAo6CAgAEB4QDxAWOgUIIRCgAToECCEQFToICCEQHhAWEB06BwghEAoQoAE6BAghEApKBAhBGABKBAhGGABQ3AdY29ABYMbWAWgRcAF4AIABqAGIAec3kgEFMTAuNTOYAQCgAQGwAQTIAQXAAQE&sclient=gws-wiz"> LINK </a> <br>
+    Conjunto de taças para água Nadir lírio 6 peças <a href="https://www.google.com/search?q=Conjunto+de+ta%C3%A7as+para+agua+nadir+lirio+6+pe%C3%A7as&ei=2r_AYp_MOeyQ4dUPprypmAI&ved=0ahUKEwifoer7mdv4AhVsSLgEHSZeCiMQ4dUDCA4&uact=5&oq=Conjunto+de+ta%C3%A7as+para+agua+nadir+lirio+6+pe%C3%A7as&gs_lcp=Cgdnd3Mtd2l6EAMyBggAEB4QFjoHCAAQRxCwAzoECAAQQzoKCAAQsQMQgwEQQzoLCAAQgAQQsQMQgwE6CAgAELEDEIMBOgUIABCABDoFCC4QgAQ6BAguEEM6CAgAEIAEELEDOgUIABCxAzoUCAAQ6gIQtAIQigMQtwMQ1AMQ5QI6CwguEIAEELEDEIMBOggILhCxAxCDAToRCC4QgAQQsQMQgwEQxwEQowI6DgguEIAEELEDEMcBENEDOg4ILhCABBCxAxDHARCjAjoHCAAQsQMQQzoICAAQHhAWEAo6CAgAEB4QDxAWOgUIIRCgAToECCEQFToICCEQHhAWEB06BwghEAoQoAE6BAghEApKBAhBGABKBAhGGABQ3AdY29ABYMbWAWgRcAF4AIABqAGIAec3kgEFMTAuNTOYAQCgAQGwAQTIAQXAAQE&sclient=gws-wiz"> LINK </a> <br>
 </h3>
 <img src="https://user-images.githubusercontent.com/108352852/177017321-d28c962f-6a04-4fa4-b92f-c9f8b7f669aa.png" width="193px" />
 
 
-<!-- Conjunto 6 taças 250ml vinho tinto nadir windsor -->
+<!-- Conjunto 6 taças 250ml vinho tinto Nadir Windsor -->
 <h3>
-    Conjunto 6 taças 250ml vinho tinto nadir windsor <a href="https://www.google.com/search?q=conjunto+6+ta%C3%A7as+250ml+vinho+tinto+nadir+windsor&ei=fMDAYqqpFJOa1sQPl8armAU&oq=Conjunto+6+ta%C3%A7as+vinho+tinto+nadir&gs_lcp=Cgdnd3Mtd2l6EAMYADIGCAAQHhAWOgcIABBHELADOgUIABCABDoICAAQHhAPEBY6CAgAEB4QFhAKOggIABAeEAgQDToFCCEQoAE6CAghEB4QFhAdSgQIQRgASgQIRhgAUOXsCViAlQpg3sEKaAJwAXgAgAGJAYgBuBeSAQQwLjI1mAEAoAEByAEIwAEB&sclient=gws-wiz"> LINK </a> <br>
+    Conjunto 6 taças 250ml vinho tinto Nadir Windsor <a href="https://www.google.com/search?q=conjunto+6+ta%C3%A7as+250ml+vinho+tinto+nadir+windsor&ei=fMDAYqqpFJOa1sQPl8armAU&oq=Conjunto+6+ta%C3%A7as+vinho+tinto+nadir&gs_lcp=Cgdnd3Mtd2l6EAMYADIGCAAQHhAWOgcIABBHELADOgUIABCABDoICAAQHhAPEBY6CAgAEB4QFhAKOggIABAeEAgQDToFCCEQoAE6CAghEB4QFhAdSgQIQRgASgQIRhgAUOXsCViAlQpg3sEKaAJwAXgAgAGJAYgBuBeSAQQwLjI1mAEAoAEByAEIwAEB&sclient=gws-wiz"> LINK </a> <br>
 </h3>
 <img src="https://user-images.githubusercontent.com/108352852/177017413-e6467931-02b4-42c7-86a9-c6835c887c04.png" width="193px" />
 
