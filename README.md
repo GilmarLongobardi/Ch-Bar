@@ -1,6 +1,6 @@
 <h1 align="center">Chá Bar</h1>
 
-<h2>Ariane e Gilmar</h2>
+> <h2>Ariane e Gilmar</h2>
 
 <img src="https://user-images.githubusercontent.com/25295542/177039089-452dbe5b-11ed-4d22-91fd-7ae910135938.png"  />
 
