@@ -187,6 +187,23 @@ Kit Happy Hour Petisqueira Garfos Molheira
 <img src="https://http2.mlstatic.com/D_NQ_NP_638078-MLB48825600065_012022-O.webp" width="193px" />
 
 
+<!-- Kit 6 Descanso Panela 20 Cm Redondo Metal Cromado Cozinha -->
+<h3> 
+Kit 6 Descanso Panela 20 Cm Redondo Metal Cromado Cozinha
+ <a href="https://produto.mercadolivre.com.br/MLB-1834612479-kit-6-descanso-panela-20-cm-redondo-metal-cromado-cozinha-_JM?matt_tool=40168140&matt_word=&matt_source=google&matt_campaign_id=14302215507&matt_ad_group_id=134553697108&matt_match_type=&matt_network=g&matt_device=m&matt_creative=539425477636&matt_keyword=&matt_ad_position=&matt_ad_type=pla&matt_merchant_id=284902666&matt_product_id=MLB1834612479&matt_product_partition_id=1403983331189&matt_target_id=aud-395642386021:pla-1403983331189&gclid=CjwKCAjw_ISWBhBkEiwAdqxb9p_uNgySM1RFXGgJtrC15KibJ5je5cRlNULN698SuRr_yl3kafKd9RoCiSAQAvD_BwE"> LINK </a> <br>
+</h3>  
+<img src="https://http2.mlstatic.com/D_NQ_NP_992813-MLB45329862364_032021-O.webp" width="193px" />
+
+
+<!-- 6 Sousplas - 6 Guardanapos -->
+<h3> 
+6 Sousplas - 6 Guardanapos
+ <a href="https://produto.mercadolivre.com.br/MLB-1844842661-6-sousplas-6-guardanapos-melhor-preco-_JM?attributes=COLOR_SECONDARY_COLOR%3AMjg%3D&quantity=1"> LINK </a> <br>
+</h3>  
+<img src="https://http2.mlstatic.com/D_NQ_NP_915709-MLB47213951138_082021-O.webp" width="193px" />
+
+
+
 
 <!-- Card exemplo
 DESC PRODUTO <a href="URLPRODUTO"> LINK </a> <br>
