@@ -139,6 +139,15 @@ Conjunto de assadeiras de vidro com tampa Marinex – 6 peças – vermelha <a h
 <img src="https://user-images.githubusercontent.com/108352852/177017510-a513e26d-40ba-461e-ab4d-83e53290ddf9.png" width="193px" />
 
 
+<!-- Jogo Kit 6 Pratos Pizza Melamina Plástico Forma A Bandeja -->
+<h3> 
+Jogo Kit 6 Pratos Pizza Melamina Plástico Forma A Bandeja
+ <a href="https://www.amazon.com.br/dp/B08SLJ8LW7/ref=cm_sw_r_awdo_ZHCB78840KKW269F29QN_0"> LINK </a> <br>
+</h3>  
+<img src="https://m.media-amazon.com/images/I/714Nwjj4uzL._AC_SL1200_.jpg" width="193px" />
+
+
+
 <!-- Card exemplo
 DESC PRODUTO <a href="URLPRODUTO"> LINK </a> <br>
 <img src="URLIMG" width="193px" />
