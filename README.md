@@ -203,6 +203,14 @@ Kit 6 Descanso Panela 20 Cm Redondo Metal Cromado Cozinha
 <img src="https://http2.mlstatic.com/D_NQ_NP_915709-MLB47213951138_082021-O.webp" width="193px" />
 
 
+<!-- Ventilador de Teto Ventisol Fenix Branco com Controle Remoto, 3 Pás, 02 Lâmpadas Led Inclusas -->
+<h3> 
+Ventilador de Teto Ventisol Fenix Branco com Controle Remoto, 3 Pás, 02 Lâmpadas Led Inclusas
+ <a href="https://www.americanas.com.br/produto/3869981458?epar=bp_pl_00_go_aa_pmax_geral&opn=YSMESP&WT.srch=1&offerId=61faca91d9fd6edeecdef4cf&gclid=EAIaIQobChMI8YTny8nf-AIV9UFIAB3owA5fEAQYASABEgKdN_D_BwE&voltagem=220v"> LINK </a> <br>
+</h3>  
+<img src="https://www.webcontinental.com.br/ccstore/v1/images/?source=/file/v4128080919881299647/products/107249.MKP000219000084-372-ventilador-de-teto-3-pas-branco-fenix-com-controle-ventisol-127v_3561.jpg" width="193px" />
+
+
 
 
 <!-- Card exemplo
