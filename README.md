@@ -13,14 +13,6 @@ Cafeteira Nescafe Dolce Gusto Mini Me Preta Automática (110v) - Nescafé Dolce 
 <img src="https://a-static.mlcdn.com.br/800x560/cafeteira-nescafe-dolce-gusto-mini-me-preta-automatica-110v-nescafe-dolce-gusto/nescafedolcegustooficial/57494976321fb14b8a56a98c28e3e784/faf9470a16142ce9bb32fa7892744526.jpeg" width="193px" />
 
 
-<!-- Purificador -->
-<h3> 
-Purificador de Água Consul Refrigerado (Agua gelada e natural)
- <a href="https://www.google.com/search?q=purificador+de+%C3%A1gua+consul+refrigerado&ei=N4nBYtOqJrH01sQPzbOMkAE&ved=0ahUKEwiTopSA2tz4AhUxupUCHc0ZAxIQ4dUDCA4&uact=5&oq=purificador+de+%C3%A1gua+consul+refrigerado&gs_lcp=Cgdnd3Mtd2l6EAMyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEOgQIABBHOgQIABBDSgQIQRgASgQIRhgAUMcOWK8gYI4maABwAngAgAFyiAH9CJIBBDEwLjKYAQCgAQHIAQjAAQE&sclient=gws-wiz"> LINK </a> <br>
-</h3>  
-<img src="https://user-images.githubusercontent.com/25295542/177039734-62806d26-7831-4d08-9c5e-8e0251c76779.png" width="193px" />
-
-
 <!-- Aparelho de jantar jardim oriental – 30 peças Oxford vermelho e branco -->
 <h3> 
 Aparelho de jantar jardim oriental – 30 peças Oxford vermelho e branco <a href="https://www.google.com/search?q=Aparelho+De+Jantar+Jardim+Oriental+30+Pe%C3%A7as+-+Oxford&oq=Aparelho+De+Jantar+Jardim+Oriental+30+Pe%C3%A7as+-+Oxford&aqs=chrome..69i57j69i60l2.767j0j7&sourceid=chrome&ie=UTF-8"> LINK </a> <br>
