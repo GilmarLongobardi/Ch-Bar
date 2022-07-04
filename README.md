@@ -49,13 +49,6 @@ Conjunto de potes herméticos Electrolux 10 peças <a href="https://www.google.c
 <img src="https://m.media-amazon.com/images/I/51bOq7rNvhL._AC_SL1000_.jpg" width="193px" />
 
 
-<!-- Jogo de Panelas Tramontina -->
-<h3> 
-Jogo de panelas antiaderente Tramontina (cor preto, prata ou vermelho) <a href="https://www.google.com/search?q=jogo+de+panelas+antiaderente+tramontina&ei=Zqi5YpODBJHX5OUPz8K3wAE&oq=jogo+de+panelas+antiaderente&gs_lcp=Cgdnd3Mtd2l6EAEYADIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQsAMQQzIHCAAQsAMQQ0oECEEYAEoECEYYAFAAWABg4wdoAXABeACAAQCIAQCSAQCYAQDIAQrAAQE&sclient=gws-wiz"> LINK </a> <br>
-</h3> 
-<img src="https://m.media-amazon.com/images/I/61Z5gMTMLmL._AC_SL1000_.jpg" width="193px" />
-
-
 <!-- Jogo Lençol King 4 peças -->
 <h3>
 Jogo de cama KING 4 peças (modelo e cor a gosto do convidado) <a href="https://www.google.com/search?q=jogo+de+len%C3%A7ol+king+4+pe%C3%A7as&ei=Zqm5Yof1AdSA5OUP06uLkAE&oq=jogo+de+cama+king+3+pe%C3%A7as&gs_lcp=Cgdnd3Mtd2l6EAEYADIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwA0oECEEYAEoECEYYAFAAWABg0RpoAXABeACAAQCIAQCSAQCYAQDIAQjAAQE&sclient=gws-wiz"> LINK </a> <br>
