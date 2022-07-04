@@ -119,13 +119,6 @@ Conjunto de assadeiras de vidro com tampa Marinex – 6 peças – vermelha <a h
 <img src="https://user-images.githubusercontent.com/108352852/177017164-f41d7d69-cbe2-45fc-ad23-3e8ed43770d6.png" width="193px" />
 
 
-<!-- Jogo de 6 Taças de Vidro Sobremesa Antalia 150ml Hercos -->
-<h3>
-    Jogo de 6 Taças de Vidro Sobremesa Antalia 150ml Hercos <a href="https://www.google.com/search?q=jogo+de+6+ta%C3%A7as+de+vidro+de+sobremesa+antalia&ei=Q7_AYq_FN8Wq1sQPg4OPgAg&ved=0ahUKEwjv8uezmdv4AhVFlZUCHYPBA4AQ4dUDCA4&uact=5&oq=jogo+de+6+ta%C3%A7as+de+vidro+de+sobremesa+antalia&gs_lcp=Cgdnd3Mtd2l6EAMyBwghEAoQoAE6BwgAEEcQsAM6BggAEB4QFjoICAAQHhAWEAo6BQghEKABSgQIQRgASgQIRhgAUJEBWNcHYKAIaAFwAXgAgAGaAYgBpAeSAQMwLjeYAQCgAQHIAQjAAQE&sclient=gws-wiz"> LINK </a> <br>
-</h3>
-<img src="https://user-images.githubusercontent.com/108352852/177017229-ca235fba-002a-4d16-98c2-7bbcfde3b5af.png" width="193px" />
-
-
 <!-- Jogo de xícaras e pires para café preto ou branco -->
 <h3>
     Jogo de xícaras e pires para café (preto ou branco) <a href="https://www.google.com/search?q=jogo+de+xicaras+e+pires+para+caf%C3%A9+preto+ou+branco&ei=1L_AYoSIE7Ca1sQP1Ka-uAs&ved=0ahUKEwiEwtX4mdv4AhUwjZUCHVSTD7cQ4dUDCA4&uact=5&oq=jogo+de+xicaras+e+pires+para+caf%C3%A9+preto+ou+branco&gs_lcp=Cgdnd3Mtd2l6EAM6BQghEKABOggIIRAeEBYQHToHCCEQChCgAUoECEEYAUoECEYYAFAnWJwEYNoGaAFwAHgAgAGPAYgBiQaSAQMwLjaYAQCgAQHAAQE&sclient=gws-wiz"> LINK </a> <br>
