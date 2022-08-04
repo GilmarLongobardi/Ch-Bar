@@ -39,13 +39,6 @@ Aparelho de jantar Saturno 16 peças com Tigelinha Duralex Opaline - Nadir Figue
 Conjunto de potes herméticos Electrolux 10 peças <a href="https://www.google.com/search?q=%E2%80%A2%09Conjunto+de+potes+herm%C3%A9ticos+Electrolux+10+pe%C3%A7as&ei=i3i0YvG_DIWE5OUP-rSeiAo&ved=0ahUKEwixseii5MP4AhUFArkGHXqaB6EQ4dUDCA4&uact=5&oq=%E2%80%A2%09Conjunto+de+potes+herm%C3%A9ticos+Electrolux+10+pe%C3%A7as&gs_lcp=Cgdnd3Mtd2l6EANKBAhBGABKBAhGGABQ9wZY9wZgnxRoAnABeACAAXeIAXeSAQMwLjGYAQCgAQGgAQKwAQDAAQE&sclient=gws-wiz"> LINK </a> <br>
 </h3> 
 <img src="https://m.media-amazon.com/images/I/51bOq7rNvhL._AC_SL1000_.jpg" width="193px" />
-
-
-<!-- Jogo Lençol King 4 peças -->
-<h3>
-Jogo de cama KING 4 peças (modelo e cor a gosto do convidado) <a href="https://www.google.com/search?q=jogo+de+len%C3%A7ol+king+4+pe%C3%A7as&ei=Zqm5Yof1AdSA5OUP06uLkAE&oq=jogo+de+cama+king+3+pe%C3%A7as&gs_lcp=Cgdnd3Mtd2l6EAEYADIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwAzIHCAAQRxCwA0oECEEYAEoECEYYAFAAWABg0RpoAXABeACAAQCIAQCSAQCYAQDIAQjAAQE&sclient=gws-wiz"> LINK </a> <br>
-</h3> 
-<img src="https://m.media-amazon.com/images/I/71XOjLq654S._AC_SL1280_.jpg" width="193px" />
           
             
 <!-- Jogo Lençol king 3 Peças -->
