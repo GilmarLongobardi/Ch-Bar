@@ -69,13 +69,6 @@ Conjunto de assadeiras de vidro com tampa Marinex – 6 peças – vermelha <a h
 <img src="https://images-americanas.b2w.io/produtos/184972559/imagens/faqueiro-inox-malibu-85-pecas-tramontina/184972559_1_xlarge.jpg" width="193px" />
         
 
-<!-- Ferro de passar -->
-<h3>
-    Ferro de passar a vapor Black Decker <a href="https://www.google.com/search?q=Ferro+de+passar+a+Vapor+FX2100+Black+Decker+1200w&oq=Ferro+de+passar+a+Vapor+FX2100+Black+Decker+1200w&aqs=chrome..69i57.655j0j1&sourceid=chrome&ie=UTF-8"> LINK </a> <br>
-</h3>
-<img src="https://m.media-amazon.com/images/I/71qLokyzDpL._AC_SL1500_.jpg" width="193px" />
-       
-
 <!-- Tapete -->
 <h3>
     Tapete de pelo alto para quarto (cor cinza ou preto) <a href="https://www.google.com/search?q=tapete+de+pelo+alto+para+quarto&ei=UPu1YsdiyY3k5Q_JxLgI&ved=0ahUKEwjHyuaP1cb4AhXJBrkGHUkiDgEQ4dUDCA4&uact=5&oq=tapete+de+pelo+alto+para+quarto&gs_lcp=Cgdnd3Mtd2l6EAMyBggAEB4QFjoECAAQQzoKCC4QxwEQowIQQzoLCAAQgAQQsQMQgwE6EQguEIAEELEDEIMBEMcBENEDOhEILhCABBCxAxCDARDHARCjAjoHCAAQsQMQQzoHCC4Q1AIQQzoICAAQgAQQsQM6BQgAEIAEOggIABCxAxCDAToFCC4QgAQ6BwgAEIAEEAo6CAgAEB4QDxAWSgQIQRgASgQIRhgAUABYxkxgwk5oAXABeACAAYcBiAHaHJIBBDMuMjmYAQCgAQHAAQE&sclient=gws-wiz"> LINK </a> <br>
