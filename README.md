@@ -20,12 +20,12 @@ Aparelho de jantar jardim oriental – 30 peças Oxford vermelho e branco <a hre
 <img src="https://a-static.mlcdn.com.br/800x560/aparelho-de-jantar-jardim-oriental-30-pecas-oxford/extralar/ap-orie3001/cfae7f6c59034ee8c1af7411423d0af3.jpg" width="193px" />
            
 
-<!-- Aparelho de jantar e chá Floreal Renda - 30 peças -->
+<!-- Aparelho de jantar e chá Floreal Renda - 30 peças
 <h3> 
 Aparelho de jantar e chá Floreal Renda - 30 peças <a href="https://www.google.com/search?q=Aparelho+de+Jantar+E+Ch%C3%A1+30+Pe%C3%A7as+Floreal+Renda&oq=Aparelho+de+Jantar+E+Ch%C3%A1+30+Pe%C3%A7as+Floreal+Renda&aqs=chrome..69i57j69i60l2.543j0j7&sourceid=chrome&ie=UTF-8"> LINK </a> <br>
 </h3> 
 <img src="https://images-americanas.b2w.io/produtos/29203207/imagens/aparelho-de-jantar-e-cha-30-pecas-floreal-renda/29203206_1_xlarge.jpg" width="193px" />
-
+-->
 
 <!-- Aparelho de jantar Saturno 16 peças com Tigelinha Duralex Opaline - Nadir Figueiredo -->
 <h3> 
@@ -76,12 +76,12 @@ Conjunto de assadeiras de vidro com tampa Marinex – 6 peças – vermelha <a h
 <img src="https://m.media-amazon.com/images/I/71mYs37EHML._AC_SL1280_.jpg" width="193px" />
       
 
-<!-- Tapete Dallas -->
+<!-- Tapete Dallas
 <h3>
     Tapete Dallas para sala ou quarto Antiderrapante Jacquard 1,35m x 1,00m Preto <a href="https://www.google.com/search?q=Tapete+Dallas+Para+Sala+Ou+Quarto+Antiderrapante+Jacquard+1%2C35m+x+1%2C00m+Preto&oq=Tapete+Dallas+Para+Sala+Ou+Quarto+Antiderrapante+Jacquard+1%2C35m+x+1%2C00m+Preto&aqs=chrome..69i57j69i60j69i61.1723j0j7&sourceid=chrome&ie=UTF-8"> LINK </a> <br>
 </h3>
 <img src="https://images-americanas.b2w.io/produtos/3824357969/imagens/tapete-jacquard-dallas-1-35-m-x-1-00m-antiderrapante-preto/3824357969_2_xlarge.jpg" width="193px" />
-
+-->
 
 <!-- Mop Spray Rodo Magico Esfregão Reservatório Limpeza Profunda -->
 <h3>
